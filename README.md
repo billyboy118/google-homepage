@@ -1,1 +1,0 @@
-During this assignemnt I want to develop my coding skills which I have learnt so far, I beliver that by doing a good job here will provide the foundation for me moving forward
